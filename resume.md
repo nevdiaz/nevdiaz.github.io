@@ -1,5 +1,6 @@
 # Jennifer Nev-Diaz (JD)
-Phone: 909 709 3030 | E-mail: [jenndiazz@icloud.com](mailto:jenndiazz@icloud.com) | nevdiaz.com
+Phone: 909 709 3030 | E-mail: [jenndiazz@icloud.com](mailto:jenndiazz@icloud.com) | [nevdiaz.com](https://www.nevdiaz.com)
+
 
 # EDUCATION
  ▶  Deep Dive Coding             						      	  Aug 2019

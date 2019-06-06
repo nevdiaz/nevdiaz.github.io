@@ -18,7 +18,9 @@ The University of New Mexico						      	  Dec 2017
 	
  • CNM Ingenuity is a nonprofit that helps Central New Mexico Community College pursue cooperative ventures in technology and     entrepreneurship. I focus on promoting programs that benefit underserved communities like FUSE Makerspace and Deep Dive Coding through social media and outreach. Report data documenting progress of projects, photograph events, implement branding guides, content development, and provide general administrative support.
   
- ▶  Artechouse 									              	    July 2018 – October 2018		
+ ▶  Artechouse 									              	    July 2018 – October 2018
+ 
+ 
 	▷Visitor Experience Representative
 	
  • Greeted and assisted visitors throughout the gallery space and answered questions about the exhibition.  Answered general email inquiries, assisted coordinators with data entry of local art organization and groups that were potential patrons, reached out to potential patrons via email. Up kept cleanliness of space, monitored gallery space, and ensured all visitors were following policies and procedures of the space. 

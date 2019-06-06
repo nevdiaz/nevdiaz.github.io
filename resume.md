@@ -2,11 +2,11 @@
 Phone: 909 709 3030 | E-mail: [jenndiazz@icloud.com](mailto:jenndiazz@icloud.com)
 
 # EDUCATION
-Deep Dive Coding             						      	  Aug 2019
+ ▶  Deep Dive Coding             						      	  Aug 2019
 
 	▷Java + Android 
 
-The University of New Mexico						      	  Dec 2017
+ ▶  The University of New Mexico						      	  Dec 2017
 
 	▷BFA Art Studio: Photography, Exploratory Art and Technology	
   
